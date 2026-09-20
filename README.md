@@ -229,4 +229,4 @@ EA Sports FC 26 Mobile is available as a full free version with all features and
 Ready to dominate the pitch? **Download EA Sports FC 26 Mobile now and join the action!**
 
 ---
-**Last updated:** 2026-09-19 22:04:47 UTC
+**Last updated:** 2026-09-20 00:36:43 UTC
